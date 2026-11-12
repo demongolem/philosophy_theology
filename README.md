@@ -1,2 +1,2 @@
 # philosophy_theology
-My Philosophy and Theology Words
+My Philosophy and Theology Works
